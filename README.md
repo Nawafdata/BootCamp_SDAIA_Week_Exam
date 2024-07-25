@@ -1,1 +1,1 @@
-Project SDAIA Academey.
+Project SDAIA.
